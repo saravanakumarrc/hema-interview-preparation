@@ -1,0 +1,1 @@
+I am preparing for the Gen AI engineer role.
